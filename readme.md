@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello! My name is Dipon and I am studying CSE at AUST. I am constantly seeking new challenges to expand my skills.
+Hello! My name is Dipon and I am a graduate from AUST CSE . I am constantly seeking new challenges to expand my skills.
 
 
 ## 🌐 Socials:
